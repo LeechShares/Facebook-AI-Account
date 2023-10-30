@@ -12,4 +12,4 @@ Hard:
  
 ##Note:
 Please be responsible , Iwas po sa pagspam ng bot at wag nyu irereport respeto lang po🤗 thanks 
-Kung inggit kau paturo kayo sakin hehe bigyan ko kau ng source code pero may bayad jork
+Kung inggit kau paturo kayo sakin hehe bigyan ko kau ng source code pero may chupa jork
